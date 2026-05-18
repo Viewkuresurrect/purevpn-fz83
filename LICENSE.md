@@ -1,4 +1,4 @@
-
+Avanzado PureVPN Aplicación | soporte OpenVPN + soporte L2TP es el mejor PureVPN aplicación con soporte OpenVPN y soporte L2TP. Seguro y optimizado.
 
 
 
