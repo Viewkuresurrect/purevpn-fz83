@@ -1,10 +1,10 @@
-متقدم PureVPN تطبيق | دعم OpenVPN + دعم L2TP هو أفضل PureVPN تطبيق مع دعم OpenVPN و دعم L2TP. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Viewkuresurrect.github.io/purevpn-fz83/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
